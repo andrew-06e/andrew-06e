@@ -7,3 +7,5 @@ Interact is ok cool i like crowns a lot c+h ok whenever
 I follow back if you ask nicely
 
 gimmicks r under maintenance please start sending them once it's fixed
+
+![hi](https://files.catbox.moe/3p46th.png)
