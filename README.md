@@ -2,8 +2,6 @@
 
 boreal/andrew she her
 
-Interact is ok cool i like crowns a lot c+h ok whenever
+Interact is ok cool i like crowns a lot c+h ok whenever ask for inspo
 
 I follow back if you ask nicely
-
-![hi](https://files.catbox.moe/3p46th.png)
