@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=grey) dude what the fuck
+![](https://komarev.com/ghpvc/?username=your-github-username&color=grey) -dude what the fuck
 
 method/andrew she her
 
@@ -9,4 +9,5 @@ I follow back if you ask nicely js ask to be oomfs dude im not aggressive
 
 finn
 
-![](https://files.catbox.moe/aq8b9t.jpg)
+
+![](https://files.catbox.moe/irqqsm.jpg) 
