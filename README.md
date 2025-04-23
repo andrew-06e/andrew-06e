@@ -4,7 +4,7 @@ method/andrew she her
 
 Interact is ok cool i like crowns a lot c+h ok whenever ask for inspo
 
-I follow back if you ask nicely
+I follow back if you ask nicely js ask to be oomfs dude im not aggressive
 
 
 finn
