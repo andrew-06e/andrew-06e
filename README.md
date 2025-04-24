@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=grey) -dude what the fuck
+![](https://komarev.com/ghpvc/?username=your-github-username&color=grey) dude what the fuck
 
 method/andrew she her
 
