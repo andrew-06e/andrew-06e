@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=grey) hey you. yes you. grab a fresh del monte banana before i eat. just kidding. im a robot. i cunt eat.
+![](https://komarev.com/ghpvc/?username=your-github-username&color=grey) hey you. yes. you. grab a fresh. del monte banana. before i. eat. just kidding. im a robot. i cunt eat.
 
 method/andrew she her
 
